@@ -85,7 +85,7 @@ Software Consultant with 4+ years of experience in designing, developing, and ma
 
 📧 kishoremano2000@gmail.com
 
-💼 LinkedIn: linkedin.com/in/kishore-m
+💼 LinkedIn: [linkedin.com/in/kishore-m](https://www.linkedin.com/in/kishore-m-90660a1b8?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 
 ---
 
