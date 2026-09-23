@@ -82,9 +82,9 @@ Software Consultant with 5+ years of experience in designing, developing, and ma
 ---
 
 ## Connect
-🌐 [Portfolio](https://kishore-portfolio-m.vercel.app)
+🌐 [Portfolio](https://kishore-portfolio-mu.vercel.app/))
 
-📧 [Email](kishoremano2000@gmail.com)
+📧 [Email](mailto:kishoremano2000@gmail.com)
 
 💼 [LinkedIn](https://www.linkedin.com/in/kishore-m-90660a1b8?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 
